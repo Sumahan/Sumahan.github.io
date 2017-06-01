@@ -1,2 +1,0 @@
-# Sumahan.github.io
-blog
